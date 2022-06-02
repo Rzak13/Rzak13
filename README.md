@@ -1,8 +1,8 @@
 ### Welcome To My Profile
 
 - 👋 Hi, I’m @Rzak13
-- 👀 I’m interested in play games
-- 🌱 I’m currently learning action books
+- 👀 I’m interested in play shoot games
+- 🌱 I’m currently learning horror books
 - 💞️ I’m looking to collaborate on softwares
 - 💀 I’m from Brazil
 
