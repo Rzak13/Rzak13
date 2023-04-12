@@ -1,6 +1,6 @@
 ### Welcome To My Profile
 
-- 👋 Hi, I’m @_vinicius.rds_
+- 👋 Hi, I’m Vinicius RDS
 - 👀 I’m interested in play shoot games
 - 🌱 I’m currently learning horror books
 - 💞️ I’m looking to collaborate on softwares
